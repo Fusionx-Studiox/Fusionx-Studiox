@@ -1,0 +1,9 @@
+- hello there!
+- uh soo
+- i do game dev in roblox and stuff
+- im a coder
+- my pronouns are he/him/his
+- uhh
+- thats it
+- yeah
+- cya
